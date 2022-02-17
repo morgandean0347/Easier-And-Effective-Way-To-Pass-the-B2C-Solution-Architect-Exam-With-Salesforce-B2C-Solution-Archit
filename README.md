@@ -1,0 +1,1 @@
+# Easier-And-Effective-Way-To-Pass-the-B2C-Solution-Architect-Exam-With-Salesforce-B2C-Solution-Archit
